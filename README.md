@@ -1,6 +1,6 @@
 - 👋 Hi out there
 - 👀 I’m interested in looking around
-- 🌱 I never stop learning 
+- 🌱 I never stopped learning 
 - 📫 Its a secret 🤫
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: "Real stupidity beats artificial intelligence every time" (Terry Pratchett)
